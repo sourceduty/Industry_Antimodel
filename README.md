@@ -1,4 +1,4 @@
-![Industry Antimodel](https://github.com/user-attachments/assets/b722d907-ae4c-4aba-aedd-c4f386ef75ea)
+![Whales](https://github.com/user-attachments/assets/7a288329-ceba-455e-9197-f82dd2d6dcc9)
 
 > Assistive business antimodel developer for unethical industrial practices such as tobacco, gambling and whale hunting.
 
@@ -148,6 +148,10 @@ Case Studies and Success Stories
 
 <br>
 </details>
+
+#
+
+![Industry Antimodel](https://github.com/user-attachments/assets/b722d907-ae4c-4aba-aedd-c4f386ef75ea)
 
 #
 ### Related Links
